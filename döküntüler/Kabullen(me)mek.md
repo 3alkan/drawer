@@ -12,7 +12,5 @@ Sonrasında bir ürperti geçer vücudumdan öyle sebepsiz. Ben burada böyle ha
   
 Beni yine ben bekler içi boş, bakışları boş, yüzü de anlamsız ve günün birinde belki deli de derler. Sahi hava hoş ve yine bir ezgi ıslıklarımda boğulan, kulağımda çalınan.  
 
---  
-26.07.2021  
-@3alkan  
+26.07.2021    
 Mustafa Alkan  
